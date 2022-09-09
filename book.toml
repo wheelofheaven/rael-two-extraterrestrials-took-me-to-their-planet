@@ -1,0 +1,12 @@
+[book]
+title = "Rael II"
+authors = ["Rael"]
+description = "Web book of Rael's second publication."
+language = "en"
+multilingual = false
+src = "src"
+
+[output.html]
+git-repository-url = "https://github.com/wheelofheaven/rael-two-extraterrestrials-took-me-to-their-planet"
+git-repository-icon = "fa-github"
+
