@@ -9,4 +9,4 @@ src = "src"
 [output.html]
 git-repository-url = "https://github.com/wheelofheaven/rael-two-extraterrestrials-took-me-to-their-planet"
 git-repository-icon = "fa-github"
-
+additional-css = ["./theme/catppuccin.css", "./theme/catppuccin-highlight.css"]
