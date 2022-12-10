@@ -700,7 +700,7 @@ Wake up slumberer that you are! This is no fabricated story. Reread all the writ
 
 The predicted signs are there. The UFOs —unidentified flying objects— which mankind has dubbed "flying saucers", are appearing every day.
 
-' *There will be signs in the sky*' — that was written a long time ago. Once you have informed yourself of these things, integrate them all in your mind, and wake up. Claude Rael exists, he is indeed alive, and he has not written what Moses, Ezekiel, Elijah, Jesus, Mohammed, Buddha and all the others wrote. He is not a biologist, but he is the last of the line of prophets, the prophet of the Apocalypse — that is, of the time when everything can be understood.
+'*There will be signs in the sky*' — that was written a long time ago. Once you have informed yourself of these things, integrate them all in your mind, and wake up. Claude Rael exists, he is indeed alive, and he has not written what Moses, Ezekiel, Elijah, Jesus, Mohammed, Buddha and all the others wrote. He is not a biologist, but he is the last of the line of prophets, the prophet of the Apocalypse — that is, of the time when everything can be understood.
 
 He is living among you right now; you are lucky enough to be one of his contemporaries, and you are able to receive his teaching. Wake up! Pull yourself together, and take to the road. Go and see him, and help him — he needs you. You will be one of the pioneers of the final religion, the religion of religions, and you will have your place, whatever may happen, among the righteous for eternity, savoring the delights of the planet of the eternals in the company of wonderfully pleasant beings who are ready to fulfill all your desires.
 
